@@ -1,3 +1,3 @@
-# Drea Studios
+# Drea Studio
 
 Great story, by sleepy
